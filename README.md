@@ -205,3 +205,6 @@ The Keep is available as a complete **free version** with all features and updat
 - 💬 **[Community](https://www.softyne.com/about-us/)**
 
 Experience the power of organization with The Keep. **Download now and elevate your gaming sessions!**
+
+---
+**Last updated:** 2026-09-14 16:49:40 UTC
