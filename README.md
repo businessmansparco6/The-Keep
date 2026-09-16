@@ -207,4 +207,4 @@ The Keep is available as a complete **free version** with all features and updat
 Experience the power of organization with The Keep. **Download now and elevate your gaming sessions!**
 
 ---
-**Last updated:** 2026-09-16 16:22:44 UTC
+**Last updated:** 2026-09-16 19:52:07 UTC
